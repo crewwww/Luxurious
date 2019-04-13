@@ -1,0 +1,17 @@
+# Luxurious
+Revolutionary soft for find and check blockchain btc private keys and balances
+Install software
+Send me your HW ID number and Your username
+Your license code will be send to you
+Because an aplication connects to blockchain,please switch off your firewall to get better results
+Injoy
+
+Contacts:
+
+support@luxuriousoftware.com
+
+sales@luxuriousofware.com
+
+Telegram channel:
+
+http://t.me/joinchat/AAAAAELCJrCxt-HMqcpJOA
