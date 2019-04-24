@@ -8,9 +8,9 @@ Injoy
 
 Contacts:
 
-support@luxuriousoftware.com
+support@luxuriousoftware.technology
 
-sales@luxuriousofware.com
+sales@luxuriousoftware.technology
 
 Telegram channel:
 
