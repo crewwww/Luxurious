@@ -4,7 +4,7 @@ Install software
 Send me your HW ID number and Your username
 Your license code will be send to you
 Because an aplication connects to blockchain,please switch off your firewall to get better results
-Injoy
+Enjoy
 
 Contacts:
 
